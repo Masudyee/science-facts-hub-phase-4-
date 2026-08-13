@@ -14,5 +14,10 @@ Did you know **a cloud can weigh over a million pounds**? ☁️⚖️
 - **Massive Weight:** An average cumulus cloud weighs about 1.1 million lbs (~500,000 kg).
 - **Floating Secret:** It stays afloat because the warm air below it is denser than the cloud itself.
 - **Micro-Drops:** The weight is spread out over trillions of microscopic water droplets.
+## 🔬 Science Facts Hub — Phase 4 (Day 54) 🚀
+Did you know **butterflies taste with their feet**? 🦋👣
+- **Taste Receptors:** Sensors on their feet help them test if a leaf is edible for laying eggs.
+- **Instant Check:** Landing on a plant instantly tells them its chemical makeup.
+
 
 
