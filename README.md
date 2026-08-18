@@ -18,6 +18,12 @@ Did you know **a cloud can weigh over a million pounds**? ☁️⚖️
 Did you know **butterflies taste with their feet**? 🦋👣
 - **Taste Receptors:** Sensors on their feet help them test if a leaf is edible for laying eggs.
 - **Instant Check:** Landing on a plant instantly tells them its chemical makeup.
+## 🔬 Science Facts Hub — Phase 4 (Day 55) 🚀
+Did you know **bananas are naturally radioactive**? 🍌⚛️
+- **Potassium Power:** They contain Potassium-40, a radioactive isotope.
+- **Harmless Dose:** The radiation level is completely safe and harmless to humans.
+- **Fun Unit:** Scientists even created a informal measurement called "Banana Equivalent Dose."
+
 
 
 
