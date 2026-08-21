@@ -23,6 +23,11 @@ Did you know **bananas are naturally radioactive**? 🍌⚛️
 - **Potassium Power:** They contain Potassium-40, a radioactive isotope.
 - **Harmless Dose:** The radiation level is completely safe and harmless to humans.
 - **Fun Unit:** Scientists even created a informal measurement called "Banana Equivalent Dose."
+## 🔬 Science Facts Hub — Phase 4 (Day 56) 🚀
+Did you know **a single bolt of lightning contains enough energy to toast 100,000 slices of bread**? ⚡🍞
+- **Extreme Energy:** A lightning bolt delivers around 1 billion joules of energy.
+- **Superhot Temperature:** It heats the air to around 30,000°C—five times hotter than the surface of the Sun!
+
 
 
 
