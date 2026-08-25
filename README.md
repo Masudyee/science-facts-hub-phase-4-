@@ -27,6 +27,11 @@ Did you know **bananas are naturally radioactive**? 🍌⚛️
 Did you know **a single bolt of lightning contains enough energy to toast 100,000 slices of bread**? ⚡🍞
 - **Extreme Energy:** A lightning bolt delivers around 1 billion joules of energy.
 - **Superhot Temperature:** It heats the air to around 30,000°C—five times hotter than the surface of the Sun!
+## 🔬 Science Facts Hub — Phase 4 (Day 57) 🚀
+Did you know **water can boil and freeze at the same time**? 🧪🌡️
+- **Triple Point:** Under exact temperature and pressure conditions, water reaches thermodynamic equilibrium.
+- **Three States:** At this point, solid, liquid, and gas phases exist together simultaneously.
+
 
 
 
