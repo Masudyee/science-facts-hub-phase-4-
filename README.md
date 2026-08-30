@@ -31,6 +31,10 @@ Did you know **a single bolt of lightning contains enough energy to toast 100,00
 Did you know **water can boil and freeze at the same time**? 🧪🌡️
 - **Triple Point:** Under exact temperature and pressure conditions, water reaches thermodynamic equilibrium.
 - **Three States:** At this point, solid, liquid, and gas phases exist together simultaneously.
+## 🔬 Science Facts Hub — Phase 4 (Day 58) 🚀
+Did you know **a sugar-cube-sized piece of a neutron star weighs about 1 billion tons**? 🌌⚖️
+- **Extreme Density:** Neutron stars cram the mass of up to two Suns into a city-sized sphere (~20 km across).
+- **Weight Comparison:** On Earth, just one cubic centimeter of this material would weigh as much as Mount Everest.
 
 
 
