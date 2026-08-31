@@ -35,6 +35,11 @@ Did you know **water can boil and freeze at the same time**? 🧪🌡️
 Did you know **a sugar-cube-sized piece of a neutron star weighs about 1 billion tons**? 🌌⚖️
 - **Extreme Density:** Neutron stars cram the mass of up to two Suns into a city-sized sphere (~20 km across).
 - **Weight Comparison:** On Earth, just one cubic centimeter of this material would weigh as much as Mount Everest.
+## 🔬 Science Facts Hub — Phase 4 (Day 59) 🚀
+Did you know **stomach acid is strong enough to dissolve stainless steel**? 🧪⚡
+- **Hydrochloric Acid:** Your stomach secretes HCl with a pH level between 1.5 and 3.5.
+- **Protective Mucus:** The stomach continuously produces a thick layer of mucus to prevent digesting itself.
+
 
 
 
