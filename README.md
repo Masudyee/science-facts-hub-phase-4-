@@ -43,6 +43,10 @@ Did you know **stomach acid is strong enough to dissolve stainless steel**? 🧪
 Did you know **sharks existed before trees**? 🦈🌲
 - **Ancient Lineage:** The earliest shark fossils date back over 400 million years.
 - **Pre-Forest Era:** The first primitive trees only appeared around 350 million years ago.
+## 🔬 Science Facts Hub — Phase 4 (Day 61) 🚀
+Did you know **octopuses have three hearts and blue blood**? 🐙💙
+- **Three Hearts:** Two pump blood to the gills, while the third pumps it to the rest of the body.
+- **Copper-Based Blood:** Their blood uses hemocyanin (copper) instead of hemoglobin (iron) to transport oxygen.
 
 
 
